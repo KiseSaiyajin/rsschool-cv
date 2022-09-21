@@ -1,1 +1,1 @@
-https://KiseSaiyajin.github.io/rsschool-cv/cv
+https://KiseSaiyajin.github.io/rsschool-cv/
